@@ -1,6 +1,5 @@
-
-                 SHANMUHAPRIYA T
-                    STUDENT
+SHANMUHAPRIYA T
+  STUDENT
 
 
 Phone   : 8825987686
